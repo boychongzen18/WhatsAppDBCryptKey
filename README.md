@@ -1,5 +1,5 @@
 
-# WhatsApp Database Encrypt Decrypt Key for WhatsApp Viewer
+# WhatsApp DB Encrypt & Decrypt Key For WhatsApp Viewer
 
 # Author : Boychongzen aka Xroot
 
