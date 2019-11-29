@@ -8,6 +8,8 @@
 # Tampilan WhatsApp Viewer 
 ![be](https://raw.githubusercontent.com/boychongzen18/WhatsApp-DB-Crypt-Key/master/WhatsApp%20Viewer.jpg)
 
+Link Download Apk GBWhatsApp : https://safeku.com/ZfwV5
+
 
 My Youtube    : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
 
