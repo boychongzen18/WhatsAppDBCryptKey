@@ -10,6 +10,8 @@
 
 Link Download Apk GBWhatsApp : https://safeku.com/ZfwV5
 
+Libk Download Driver_USB : https://safeku.com/3vsv5oHm
+
 
 My Youtube    : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
 
