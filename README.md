@@ -1,7 +1,7 @@
 
 # WhatsApp DB Encrypt & Decrypt Key For WhatsApp Viewer
 
-# Tested : Windows & Android Rooted , Non Rooted Working
+# Windows & Android Rooted , Non Rooted Working
 
 # Author : Boychongzen aka Xroot
 
