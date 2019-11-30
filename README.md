@@ -1,5 +1,5 @@
 
-# WhatsApp DB Encrypt & Decrypt Key For WhatsApp Viewer
+# WhatsApp DB Encrypt & Decrypt 
 
 # Windows & Android Rooted , Non Rooted Working
 
