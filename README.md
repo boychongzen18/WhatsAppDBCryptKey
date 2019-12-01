@@ -18,7 +18,7 @@ Link Download Driver_USB : https://safeku.com/3vsv5oHm
 
 My Youtube    : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
 
-Link Tutorial : 
+Link Tutorial : https://youtu.be/fBAv8e7XUOE
 
 My Website    : https://hackingforlive.wordpress.com
 
